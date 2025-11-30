@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Huangie, an undergraduate student at National Yunlin University of Science and Technology (NYUST) from Taiwan.
+I'm Huangie, an Information Management major at NYUST from Taiwan.
 
 Now dedicating to research Language learning through music.
 
